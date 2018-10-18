@@ -1,8 +1,9 @@
+<a href="http://tinypic.com?ref=33d9kjo" target="_blank"><img src="http://i66.tinypic.com/33d9kjo.png" border="0" alt="Image and video hosting by TinyPic"></a>
 This application enable you
 
 Deface & mass Deface To :
 zone-h.org
-https://www.imageupload.co.uk/images/2018/10/18/capture-20181018-192851.png
+
 Coded BY:Unknwon [unkn0wn@danwin1210.me]
 
 Iran-Cyber.Net
